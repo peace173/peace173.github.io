@@ -1,5 +1,7 @@
 ## Hayley Peace
 
+![Hayley's profile photo](unnamed.jpg)
+
 Biology and English Literature major, Environment & Sustainability Studies minor at Agnes Scott College  
 Background in invertebrate ecology and education 
 
